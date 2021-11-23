@@ -1,4 +1,4 @@
-22/11/2021
+
 ## Algunos datos sobre mí 😄
 
 #### Gracias por entrar a visitarme✌️ 
